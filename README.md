@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @y1415702869
+- 👋 Hi, I’m Lucifer
 - 👀 I’m interested in pg and game
 - 🌱 I’m currently learning at XMUT
 - 💞️ I’m looking to collaborate on ...
